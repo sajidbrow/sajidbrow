@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sajidbrow
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning landchati ki faram bharing..
+- 🌱 I’m currently learning study
 - 💞️ I’m looking to collaborate on movie
 - 📫 How to reach me 93*********
 
